@@ -3,7 +3,8 @@
 
 #### **Socials:**
 - 🖤 [X (Twitter)](https://twitter.com/sxnvmqe/)
-- 📸 [Instagram](https://instagram.com/sxnvmqe/) (
+- 📸 [Instagram](https://instagram.com/sxnvmqe/)
+- 💬 [Discord](https://discordapp.com/users/1137043490514157588/)
 
 #### **Livestreams:**
 - 💚 [kick.com/sxnvmqe/](https://kick.com/sxnvmqe/)
