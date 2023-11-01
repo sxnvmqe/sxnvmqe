@@ -8,7 +8,7 @@
 
 #### **Livestreams:**
 - 💚 [kick.com/sxnvmqe/](https://kick.com/sxnvmqe/)
-- 🖤 [X (Twitter)](https://twitter.com/sxnvmqe/)
+- 🖤 [twitter.com/sxnvmqe/](https://twitter.com/sxnvmqe/)
 - 💜 [twitch.tv/sxnvmqe/](https://twitch.tv/sxnvmqe/)
 - ❤️ [youtube.com/@sxnvmqe/](https://youtube.com/@sxnvmqe)
 - 💚 [trovo.live/sxnvmqe/](https://trovo.live/sxnvmqe/)
