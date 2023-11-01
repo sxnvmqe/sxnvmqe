@@ -1,5 +1,5 @@
 **👋 Hi, I’m SXNVMQE!** <br>
-..and I stream simultaneously on various platforms such as Kick, Twitch, Trovo, and YouTube with the username SXNVMQE but Kick will always be my home.
+..and I stream simultaneously on various platforms such as Kick, X, Twitch, Trovo, and YouTube with the username SXNVMQE but Kick will always be my home.
 
 #### **Socials:**
 - 🖤 [X (Twitter)](https://twitter.com/sxnvmqe/)
@@ -8,6 +8,7 @@
 
 #### **Livestreams:**
 - 💚 [kick.com/sxnvmqe/](https://kick.com/sxnvmqe/)
+- 🖤 [X (Twitter)](https://twitter.com/sxnvmqe/)
 - 💜 [twitch.tv/sxnvmqe/](https://twitch.tv/sxnvmqe/)
 - ❤️ [youtube.com/@sxnvmqe/](https://youtube.com/@sxnvmqe)
 - 💚 [trovo.live/sxnvmqe/](https://trovo.live/sxnvmqe/)
